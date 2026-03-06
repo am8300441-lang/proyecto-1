@@ -1,0 +1,3 @@
+Pasando a la década del 1960, el Lorem Ipsum fue popularizado por el fabricante del tipografía Letraset, que lo utilizó en sus campañas publicitarias. Letraset ofrecía páginas del Lorem Ipsum como hojas del transferencia, que fueron ampliamente utilizadas en la era anterior a los ordenadores para los diseños. Estas páginas del transferencia, conocidas como Letraset Body Type, se incluyeron en la publicidad del la compañía y en su popular catálogo.
+
+El Lorem Ipsum fue reintroducido en la década del 1980 por Aldus Corporation, una empresa que desarrolló Software del Publicación del Escritorio. Su producto más conocido PageMaker viene con gráficos y plantillas del procesamiento del textos previamente instaladas que contienen una versión del lenguaje latín falso.    
